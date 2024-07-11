@@ -54,9 +54,9 @@
 
    {
    
-    Passionated CYCLIST 
+    A Passionated CYCLIST 
     
-    A proffesional Photogarpher and creator
+    A proffesional Photogarpher and A Video Creator
 
     A Traveller and A Music Enthusiast
     
