@@ -64,6 +64,7 @@
    
   
 🛠️**WORKED AS AN INTERNSHIP TRAINEE IN FORVIA INTERNATIONAL AND FORD FORVIA** 
+
 🚀**I AM JUST STEPPED IN, GUYS. THE BEST IS YET TO BE SEEN!**
 
 📫**How to reach me?** Follow my journey on Instagram [@yayaadh_u](https://www.instagram.com/yayaadh_u/)
