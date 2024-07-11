@@ -4,7 +4,7 @@
 
    {
    
-     I am **MR.CODE CRAFTER** == find me as YadhuKrishnan in the **MATRIX** 
+     I am MR.CODE CRAFTER == find me as YadhuKrishnan in the MATRIX 
      
     🛠️🚗 A guy From machines world to the binary world of coding 🖥️➡️💻
     
@@ -42,7 +42,7 @@
 
    {
    
-    Advancing Web3 development with **METACRAFTERS** 💻🌐
+    Advancing Web3 development with METACRAFTERS 💻🌐
     
     Creating a friendly AI for people
     
