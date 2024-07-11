@@ -1,7 +1,9 @@
 👋 **Hey so you found me, wanna know me?**
 
 **✨INTRODUCING ME**
+
    {
+   
      I am **MR.CODE CRAFTER** == find me as YadhuKrishnan in the **MATRIX** 
      
     🛠️🚗 A guy From machines world to the binary world of coding 🖥️➡️💻
@@ -11,6 +13,7 @@
    }
    
 **🌟THRILLED IN**
+
    {
    
     Manipulating AIs to extreme levels  
@@ -22,6 +25,7 @@
    }
    
 **💻SKILL SET**
+
    {
    
     Proficient in manipulating AIs and other Advanced tools 🤖
@@ -35,6 +39,7 @@
    }
    
 **🌐CURRENTLY**
+
    {
    
     Advancing Web3 development with **METACRAFTERS** 💻🌐
