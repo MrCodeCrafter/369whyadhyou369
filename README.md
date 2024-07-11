@@ -1,6 +1,6 @@
-👋 **Hey so you found me, wanna know me?**
+👋**Hey so you found me , wanna know about me ?**
 
-**✨INTRODUCING ME**
+**✨INTRODUCING MYSELF**
 
    {
    
@@ -50,9 +50,23 @@
     
    } 
    
-🚀 **I AM JUST STEPPED IN, GUYS. THE BEST IS YET TO BE SEEN!**
+   **🌐OTHER THAN CODING**
 
-📫 **How to reach me?** Follow my journey on Instagram [@yayaadh_u](https://www.instagram.com/yayaadh_u/)
+   {
+   
+    Passionated CYCLIST 
+    
+    A proffesional Photogarpher and creator
+
+    A Traveller and A Music Enthusiast
+    
+   } 
+   
+  
+🛠️**WORKED AS AN INTERNSHIP TRAINEE IN FORVIA INTERNATIONAL AND FORD FORVIA** 
+🚀**I AM JUST STEPPED IN, GUYS. THE BEST IS YET TO BE SEEN!**
+
+📫**How to reach me?** Follow my journey on Instagram [@yayaadh_u](https://www.instagram.com/yayaadh_u/)
 
   
 
