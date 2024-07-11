@@ -8,7 +8,7 @@
      
     🛠️🚗 A guy From machines world to the binary world of coding 🖥️➡️💻
     
-     Cafting my career and part-time student in **MACE**
+     Cafting my career and a part-time student in MAR ATHANASIUS ENGINEERING COLLAGE
    
    }
    
