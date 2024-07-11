@@ -1,4 +1,4 @@
-👋**Hey so you found me , wanna know about me ?**
+👋**HEY SO YOU FOUND ME HUH ! , WANNA KNOW ME ?**
 
 **✨INTRODUCING MYSELF**
 
